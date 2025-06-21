@@ -1,7 +1,8 @@
 <h2>磁力链接搜索引擎 - 免费磁力搜索工具最新网址|发布页</h2>
 <p>磁力链接搜索引擎是一种基于磁力链接技术的网络工具，旨在帮助用户快速、高效地搜索和下载各种资源。这类搜索引擎通过解析磁力链接，索引全球范围内的资源库，为用户提供便捷的搜索服务。用户只需输入关键词，即可找到所需的资源，并通过支持BT协议的下载工具完成下载。磁力链接搜索引擎具有资源丰富、搜索速度快、操作简便等特点，是现代互联网用户获取资源的重要工具之一。</p>
-<p><strong>一键访问：</strong><a href="https://www.ggonav.com/favorites/cilisousuo" target="_blank"><strong>磁力链接搜索引擎最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://pan.quark.cn/s/0db22432c259" target="_blank"><strong>⏬经典电影/无损音乐</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://cilisousuodaohang.litxdh.com" target="_blank"><strong>磁力链接搜索引擎最新网址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://cilisousuodaohang.litxdh.com"><strong>磁力导航大全</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/"><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <p><strong>功能特点：</strong></p>
 <ol>
